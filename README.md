@@ -1,1 +1,2 @@
-# Econom-a-y-pol-tica-en-conflicto
+# Econom-a-y-política-en-conflicto
+La inestabilidad política en América Latina afecta profundamente su desarrollo económico. Países como Bolivia enfrentan tensiones internas que limitan reformas estructurales, mientras Argentina lucha contra la hiperinflación y la falta de confianza en las instituciones. Sectores clave como la manufactura y la inversión extranjera directa están en declive, exacerbando problemas históricos. La estabilidad institucional es clave para un futuro sostenible.
